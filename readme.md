@@ -1,5 +1,5 @@
 ### Portafolio de proyectos
-¡Hola! *Soy Galilea Jarillo* soy una profesional con 6 años de experiencia en comunicación apasionada por las tecnologías de la información actualmente estoy desarrollandome como desarrolladora frontend jr.
+¡Hola! *Soy Galilea Jarillo* soy una profesional con experiencia en comunicación apasionada por las tecnologías de la información actualmente estoy desarrollandome como desarrolladora frontend jr.
 
 ____________________
 
